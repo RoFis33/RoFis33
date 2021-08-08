@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RoFis33
+- 👀 I’m interested in things
+- 🌱 I’m currently learning PYthon
+- 📫 How to reach me Discord RF#3295 and Steam id normal_person33
